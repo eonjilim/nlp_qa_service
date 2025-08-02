@@ -12,7 +12,7 @@
 ![011](https://github.com/user-attachments/assets/04ae9252-2360-4e52-b467-d1a67700f3ee)
 
 
-
+![시연영상](https://github.com/user-attachments/assets/61c4e4db-af78-406e-969c-35330b364d7c)
 
 
 
